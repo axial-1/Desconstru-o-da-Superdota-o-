@@ -1,0 +1,1 @@
+# Desconstru-o-da-Superdota-o-
